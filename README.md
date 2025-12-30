@@ -1,0 +1,1 @@
+kebetulan saya masih semester 1 prodi sistem informasi dan di perkuliahan saya baru belajar pascal saja, ini saya buat hasil dari saya belajar melalui youtube dan bantuan AI (jika saya kurang paham sama apa yang dijelaskan di youtube).
